@@ -6,7 +6,7 @@ I'm glad you are here. I plan to talk about ...
 * Some things I enjoy like:
   * this and
   * THAT
-* Probaby my two dogs
+* Probably my two dogs
 * My favorite color Yellow
 * Whiskey
   
